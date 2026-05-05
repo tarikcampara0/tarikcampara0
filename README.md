@@ -1,4 +1,4 @@
-https://www.linkedin.com/in/tarik-campara-a78210408/
+https://www.linkedin.com/in/tarik-campara-a78210408/ |||
 tarikcampara04@gmail.com
 
 <!---
