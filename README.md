@@ -1,5 +1,5 @@
-
-- How to reach me tarikcampara04@gmail.com
+https://www.linkedin.com/in/tarik-campara-a78210408/
+tarikcampara04@gmail.com
 
 <!---
 tarikcampara0/tarikcampara0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
